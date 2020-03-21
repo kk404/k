@@ -1,5 +1,5 @@
 ### 美国金刚公司出品一一
-![image](l-w-s-athird.png)
+![image](kklogo-athird.png)
 ## 翻墙神器金刚梯
 
 #### 金刚公司精心打造
